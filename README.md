@@ -1,3 +1,3 @@
 # LeStyloBleu ・ Fizayy
 
-**French developper since 2 years**
+**Hello, I'm french developper since 2 years now**
